@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KiiroPaulZ
+- 👋 Hi, I’m @PaulZANAGLIA
 - 👀 I’m interested in drawing, gaming and coding
 - 🌱 I’m currently learning at University computer sciences
 - 📫 How to reach me paulzanaglia06@gmail.com
